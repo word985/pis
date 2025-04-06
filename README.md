@@ -1,2 +1,1 @@
-# pis
-pis
+https://download2277.mediafire.com/vgiroedbgc9gFd8WchjsCr0ennDxl2XycUsqH0usUZm83LToWj4XCyZzoSgGLAUBP0oNVBjOtCTY9ch1yAI1vHW6StJ9Va5JBmnhaJZgNdOmzXAMsMamNW8vjOTJk4zg8FvDKvPxrA2H4APDdFuYpkUjY78czPGpCTjFocevmjNFfrwt/6qkqb4b3r9hre1m/Netflix-v2.34-%5BNPUP00030%5D.pkg
